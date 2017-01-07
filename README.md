@@ -1,1 +1,1 @@
-# koidumetsa7
+# Koidumetsa tee 7 detailplaneering
